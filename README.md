@@ -1,1 +1,0 @@
-# KPMG_Assignment2
